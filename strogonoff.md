@@ -1,1 +1,0 @@
-# Minha Receita de strong
